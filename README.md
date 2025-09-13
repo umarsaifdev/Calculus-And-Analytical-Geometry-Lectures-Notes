@@ -29,6 +29,6 @@ I’ve modified these notes using the **Richard Feynman Technique** — breaking
 ---
 
 ### 🔗 Playlist  
-Watch the full YouTube playlist here → [Playlist Link]  
+Watch the full YouTube playlist here → [(https://www.youtube.com/watch?v=c35blv3ml-U&list=PLGBdI0wFyDx6MiihkJMSdpw2HCvDTEy-f)]  
 
 Stay tuned — new lectures dropping soon.  
